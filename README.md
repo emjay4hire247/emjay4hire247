@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...learning how to use this program and learn how to code
 - 🌱 I’m currently learning ...this program
 - 💞️ I’m looking to collaborate on ...learning  
-- 📫 How to reach me ...emjay2485@outlook.com
+- 📫 How to reach me ... emjay2485@outlook.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
